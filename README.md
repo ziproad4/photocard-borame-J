@@ -1,1 +1,1 @@
-# photocard-borame-J
+# photocard-geomdan
